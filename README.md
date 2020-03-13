@@ -1,1 +1,0 @@
-# juliuszsielski.github.io
